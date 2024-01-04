@@ -1,1 +1,1 @@
-# khanssar-ka-salaar
+# khansar-ka-salaar
